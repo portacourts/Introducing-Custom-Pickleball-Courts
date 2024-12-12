@@ -17,7 +17,7 @@ With a minimum average service life of 3-5 years, and a replacement option of po
 4. **Portable options:** Choose between portable nets, portable assembly rolls, or one big roll court.
 5. **Advanced Shock absorption technology** with a pickleball rebound rate greater than 90%.
 
-👉 **[Explore more about our premium pickleball courts here!](https://yourwebsite.com)**
+👉 **[Explore more about our premium pickleball courts here!](https://www.portacourts.com/product-detail/premium-pickle-ball-court)**
 
 ---
 
@@ -29,5 +29,5 @@ With a minimum average service life of 3-5 years, and a replacement option of po
 3. **Built-in shock-absorbing layers** with an impact-resistance coefficient of ≥ 8N/m.
 4. **Adjustable net tensioning system** to maintain optimal tightness and consistent bounce for fast-paced rallies.
 
-👉 **[Learn more about our spike ball courts today!](https://yourwebsite.com)**
+👉 **[Learn more about our spike ball courts today!](https://www.portacourts.com/product-detail/premium-spike-ball-court)**
 
